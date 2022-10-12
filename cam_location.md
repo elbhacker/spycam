@@ -1,1 +1,1 @@
-Camera is hidden above the left cupboard in the kitchen
+Camera is now hidden behind one plant in the working room of STS.
